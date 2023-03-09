@@ -1,1 +1,0 @@
-good morning - nguyễn văn trí
